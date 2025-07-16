@@ -7,4 +7,7 @@ A bit abitious and we did not even get close but we have learnt many things alon
 
 ![sda](Untitled-2025-04-27-2251.png)
 
-![alt text](images/IMG_20250712_155708300_HDR.jpg) ![alt text](images/IMG_20250713_164052280_HDR.jpg) ![alt text](images/IMG_20250713_164039529_HDR.jpg) ![alt text](images/IMG_20250712_163748274_MP.jpg)
+
+![img](https://hc-cdn.hel1.your-objectstorage.com/s/v3/b74a9da28c30a2930faf369a86bff1a13c8b2e21_20250714_070148.jpg)
+![alt text](images/IMG_20250712_155708300_HDR.jpg)
+![alt text](images/IMG_20250713_164052280_HDR.jpg) ![alt text](images/IMG_20250713_164039529_HDR.jpg) ![alt text](images/IMG_20250712_163748274_MP.jpg)
